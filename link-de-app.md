@@ -1,0 +1,1 @@
+gamedatecarlos.lovable.app
